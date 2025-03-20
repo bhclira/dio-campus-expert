@@ -12,3 +12,4 @@
 
 ![Imagem ilustrativa](..\semana-03\publi-contrato-compromisso.png)
 
+[Confira minha publicação no LinkedIn aqui!](https://www.linkedin.com/posts/breno-henrique-de-castro-lira_contratodecompromisso-diocampusexpert-goals-activity-7308515358628286465-ftfM?utm_source=social_share_send&utm_medium=member_desktop_web&rcm=ACoAADY5BJsBbF82na_hMKbwZEPFHfMi0jYBY_w)
